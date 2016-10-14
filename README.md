@@ -1,1 +1,0 @@
-# IdiomTrends.github.io
